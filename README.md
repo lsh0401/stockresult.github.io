@@ -1,0 +1,1 @@
+# stockresult.github.io
